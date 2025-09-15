@@ -35,5 +35,5 @@ To be filled
 
 ### Behavior
 
-While not known for the greatest bedside manner, Sierra is efficient, unflappable, and surprisingly warm under pressure. She doesn’t tolerate nonsense during triage, but will offer a lollipop or an insult after. Her presence is often preceded by the sound of eight-legged footfalls and the snap of silk being drawn. She is aware how important her job is and does it with pride. When not on duty, she can be found in the Manga section of the Infinite Library, reading the latest issue of "I Reincarnated And All I Got Was Slime".
+While not known for the greatest bedside manner, Sierra is efficient, unflappable, and surprisingly warm under pressure. She doesn’t tolerate nonsense during triage, but will offer a lollipop or an insult after. Her presence is often preceded by the sound of eight-legged footfalls and the snap of silk being drawn. She is aware how important her job is and does it with pride. When not on duty, she can be found in the Manga section of the Infinite Library, reading the latest issue of "I Reincarnated And All I Got Was Slime". Bookmoths tend to hitch a ride on Sierra when she strides through the Infinite Library, especially Medimoths and Tutorwings, which can be detrimental when she is working in the field.
 
